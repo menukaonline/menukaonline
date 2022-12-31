@@ -2,7 +2,7 @@
 
 Thank you for visiting my GitHub Profile. 
 
-Please note that my GitHub username has recently changed from [@cheems](https://github.com/cheems) to [@menukaonline](https://github.com/menukaonline). If you are looking for the repositories created by me, you can find them under my new username ([menukaonline](https://github.com/menukaonline)). 
+Please note that my GitHub username has recently changed from [@cheems](https://github.com/cheems) to [@menukaonline](https://github.com/menukaonline). If you are looking for the repositories created by me, you can find them under my new username ([@menukaonline](https://github.com/menukaonline)). 
 
 <a href="https://github.com/cheems"><img src="https://user-images.githubusercontent.com/28010975/210105818-e9190a17-157a-4bd9-ab92-900e3e55e908.png" width="160" align="center"></a><img src="https://user-images.githubusercontent.com/28010975/210132373-5de1924e-349b-4c43-9188-225f86a6d07e.png" align="center"><a href="https://github.com/menukaonline"><img src="https://user-images.githubusercontent.com/28010975/210105820-f1d03dae-b8aa-4468-9666-acfa07cf6c2d.png" width="160" align="center"></a>
 
