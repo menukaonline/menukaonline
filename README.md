@@ -12,3 +12,15 @@ Thank you for your understanding and I apologize for any inconvenience this may 
 
 Best regards, 
 [@menukaonline](https://github.com/menukaonline) ([@cheems](https://github.com/cheems))
+
+<hr>
+
+## Remembering Cheems: A Fond Farewell! <img src="https://github.com/menukaonline/menukaonline/assets/28010975/9a99d923-5c59-4394-b224-081c57ff2ccb" width="30" align="top">
+
+
+<img src="https://github.com/menukaonline/menukaonline/assets/28010975/64f8ca70-1eb6-43a6-b72b-33d2beae490c" width="250"><br>
+<sub>Image credit goes to <a href="https://www.instagram.com/memedinehq/">@memedinehq</a></sub>
+
+In memory of Cheems the dog, who brought smiles to countless faces with his endearing meme. As someone who once carried the name [@cheems](https://github.com/cheems), I fondly remember the joy this beloved Shiba Inu brought to the internet community. Though my username has changed, my appreciation for Cheems' legacy remains. Rest in peace, Cheems, knowing that your charm and humor will forever live on in our hearts.
+
+
